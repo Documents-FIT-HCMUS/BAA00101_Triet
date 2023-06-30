@@ -1,0 +1,3 @@
+!!! DOWNLOAD CẢ FOLDER VỀ !!!
+!!! KHÔNG NÊN XEM TRỰC TIẾP VÌ CÓ THỂ BỊ YÊU CẦU CẤP QUYỀN TRUY CẬP !!!
+!!! FOLDER NÀY KHÔNG TỒN TẠI MÃI MÃI, HÃY TẢI VỀ VÀ SHARE !!!
